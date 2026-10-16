@@ -1,1 +1,2 @@
-[Elektronnyi_774_zhurnal_Zorin_Ilyasov_Manzhikov_Sysoev_1.pdf](https://github.com/user-attachments/files/33540966/Elektronnyi_774_zhurnal_Zorin_Ilyasov_Manzhikov_Sysoev_1.pdf)
+[Электронный_журнал_Зорин_Ильясов_Манжиков_Сысоев.docx](https://github.com/user-attachments/files/33549811/_._._._._.docx)
+
